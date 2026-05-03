@@ -2,6 +2,34 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-03 13:18 IR
+- 🗜️ [Python_Jame Jadi @PyPackage.part2.rar.zip](https://github.com/mamaddrrezabbg/sandbox/raw/main/dl/Python_Jame%20Jadi%20%40PyPackage.part2.rar.zip) `50.2MB`
+
+- 🗜️ [Python_Jame Jadi @PyPackage.part2.rar.z01](https://github.com/mamaddrrezabbg/sandbox/raw/main/dl/Python_Jame%20Jadi%20%40PyPackage.part2.rar.z01) `95.0MB`
+
+- 🗜️ [Python_Jame Jadi @PyPackage.part2.rar.z02](https://github.com/mamaddrrezabbg/sandbox/raw/main/dl/Python_Jame%20Jadi%20%40PyPackage.part2.rar.z02) `95.0MB`
+
+- 🗜️ [Python_Jame Jadi @PyPackage.part2.rar.z03](https://github.com/mamaddrrezabbg/sandbox/raw/main/dl/Python_Jame%20Jadi%20%40PyPackage.part2.rar.z03) `95.0MB`
+
+- 🗜️ [Python_Jame Jadi @PyPackage.part2.rar.z04](https://github.com/mamaddrrezabbg/sandbox/raw/main/dl/Python_Jame%20Jadi%20%40PyPackage.part2.rar.z04) `95.0MB`
+
+- 🗜️ [Python_Jame Jadi @PyPackage.part2.rar.z05](https://github.com/mamaddrrezabbg/sandbox/raw/main/dl/Python_Jame%20Jadi%20%40PyPackage.part2.rar.z05) `95.0MB`
+
+- 🗜️ [Python_Jame Jadi @PyPackage.part2.rar.z06](https://github.com/mamaddrrezabbg/sandbox/raw/main/dl/Python_Jame%20Jadi%20%40PyPackage.part2.rar.z06) `95.0MB`
+
+- 🗜️ [Python_Jame Jadi @PyPackage.part2.rar.z07](https://github.com/mamaddrrezabbg/sandbox/raw/main/dl/Python_Jame%20Jadi%20%40PyPackage.part2.rar.z07) `95.0MB`
+
+- 🗜️ [Python_Jame Jadi @PyPackage.part2.rar.z08](https://github.com/mamaddrrezabbg/sandbox/raw/main/dl/Python_Jame%20Jadi%20%40PyPackage.part2.rar.z08) `95.0MB`
+
+- 🗜️ [Python_Jame Jadi @PyPackage.part2.rar.z09](https://github.com/mamaddrrezabbg/sandbox/raw/main/dl/Python_Jame%20Jadi%20%40PyPackage.part2.rar.z09) `95.0MB`
+
+- 🗜️ [Python_Jame Jadi @PyPackage.part2.rar.z10](https://github.com/mamaddrrezabbg/sandbox/raw/main/dl/Python_Jame%20Jadi%20%40PyPackage.part2.rar.z10) `95.0MB`
+
+- 🗜️ [Python_Jame Jadi @PyPackage.part2.rar.zip](https://github.com/mamaddrrezabbg/sandbox/raw/main/dl/Python_Jame%20Jadi%20%40PyPackage.part2.rar.zip) `50.2MB`
+
+---
+
+
 ### 📅 2026-05-03 12:19 IR
 - 🗜️ [Python_Jame Jadi @PyPackage.part1.rar.zip](https://github.com/mamaddrrezabbg/sandbox/raw/main/dl/Python_Jame%20Jadi%20%40PyPackage.part1.rar.zip) `50.2MB`
 
